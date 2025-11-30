@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sha-ba-ss
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning +2 scince
+- 🌱 I’m currently learning Bsc Cs in Nss Ottapalam
 - 💞️ I’m looking to collaborate on same age coders
 - 📫 reach me through shahabasamentcva8606@gmail.com
 - 😄 Pronouns: shahabas
